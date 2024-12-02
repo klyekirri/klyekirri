@@ -5,6 +5,7 @@
 🌱 Currently learning: Advanced IT solutions, cloud computing, and everything that sparks innovation.
 
 💞️ Collaborating on: Community projects, tech talks, and creating opportunities for aspiring developers.
+
 📫 Reach me at: LinkedIn 
 
 😄 Pronouns: She/Her
